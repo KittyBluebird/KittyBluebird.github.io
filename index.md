@@ -19,3 +19,6 @@ That changed things for her. A lot.
   highschool loser and world savior, later then also of Anja, ex-demon and baby sister and ley to demon dimension Dawn
 * would prefer a regular life 
 
+
+> If the apokalypse comes, beep me.
+
