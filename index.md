@@ -1,2 +1,2 @@
 
-# Buffy - The Narratolgy Slayer
+# Buffy - The Narratology Slayer
